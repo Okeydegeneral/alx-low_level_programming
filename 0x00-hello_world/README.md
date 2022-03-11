@@ -1,1 +1,1 @@
-Name
+print
