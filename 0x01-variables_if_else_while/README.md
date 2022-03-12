@@ -1,1 +1,1 @@
-God direct my path
+c is hard
