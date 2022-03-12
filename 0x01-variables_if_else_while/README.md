@@ -1,1 +1,1 @@
-hard
+Strong
