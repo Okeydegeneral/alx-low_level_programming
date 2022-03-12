@@ -1,1 +1,1 @@
-read only
+jisie ike
