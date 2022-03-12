@@ -1,1 +1,1 @@
-I'm lost
+God direct my path
